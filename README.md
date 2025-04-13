@@ -1,4 +1,3 @@
-## Hi there 👋
 # 👋 Hi, I'm Vividha Mehra
 
 🧪 **Quality Assurance Specialist** | 📈 **Aspiring Project Manager** | 🧭 **Scrum Practitioner**  
